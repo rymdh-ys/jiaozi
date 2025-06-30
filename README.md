@@ -3,7 +3,7 @@
 饺子影院是一个专注于提供超清海外影视资源的在线视频平台。该网站以欧美、日本、韩国的热门电影、电视剧和动漫资源为主，资源丰富且更新及时。其所有资源均为自建，画质清晰，均为1080P，能够为用户提供高质量的视觉体验。此外，饺子影院在高峰期观看也不会出现卡顿现象，确保用户可以畅享观影。网站不仅提供在线观看，还支持多种网盘下载方式，如夸克、UC网盘等，方便用户根据自身需求选择观看或下载。
 
 <p><strong>一键访问：</strong><a href="https://www.rymdh.com/sites/14438.html" target="_blank" ><strong>饺子影院最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://www.xxsnav.com/favorites/dongmanziyuan" target="_blank" ><strong>动漫资源</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://www.rymdh.com/favorites/yingshizaixiankan" target="_blank" ><strong>影视资源</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank" ><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 
 ### 功能特点
